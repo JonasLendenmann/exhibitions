@@ -1,7 +1,7 @@
 Kunsthaus Zürich
 ================
 
-## Exhibitions 1910-2018
+## Exhibitions 1910-2019
 
 The [Kunsthaus Zürich](http://www.kunsthaus.ch/) has been mounting temporary exhibitions for more than a century. Every year, the Kunsthaus Zürich holds an average of three exhibitions in the Great Exhibition Hall, three medium-sized shows, and three cabinet or dossier exhibitions. Presentations range in topic from the late 18th century to the 21st and include experimental shows alongside classical formats. The exhibition list includes the first exhibitions from 1910 up to 2019. 
 
